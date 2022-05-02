@@ -35,7 +35,7 @@
 
 【报名截止: 2022年五月份左右开始联系，请尽早】 [中科院软件所中文信息处理实验室](http://www.icip.org.cn/zh/2022/04/11/recruit/)
 
-【报名截止：2022.5.10】[中国科学院空天信息创新研究院](https://www.wjx.cn/vj/wFiWeEw.aspx.)
+【报名截止：2022.5.10】[中国科学院空天信息创新研究院](https://www.wjx.cn/vj/wFiWeEw.aspx)
 
 # 天津大学
 
